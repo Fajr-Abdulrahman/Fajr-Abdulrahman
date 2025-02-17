@@ -1,2 +1,2 @@
 Hello there,
-I'm a physics student and I'm interested to know more about our universe :)
+I'm a physics student and I'm interested to learn more about our universe :)
